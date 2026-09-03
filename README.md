@@ -1,1 +1,1 @@
-# Investigaci-n-de-operaciones-
+# Investigacion-de-operaciones-
